@@ -1,4 +1,4 @@
-# 
+# best NFT Rarity Sniper for opensea sniper bot | floor-price-tracking & collection-scanning is the best opensea sniper bot, featuring floor-price-tracking and collection-scanning.
 
 
 
